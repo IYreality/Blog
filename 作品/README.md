@@ -1,1 +1,10 @@
 部分作品收集整理
+[CSDN博客](https://blog.csdn.net/qq_36320285)
+[博客园博客](https://www.cnblogs.com/AilsaEvans/)
+[有道云笔记QQ账号](https://note.youdao.com/web/#/file/43CA4D9AEB8F40928641F40D97661193/default/63f99790527df212ed59d35878901a79/)
+[有道云笔记微信账号]()
+[幕布笔记QQ账号]()
+[幕布笔记微信账号]()
+个人微信公众号《一厘米幻想》
+[github](https://github.com/IYreality)
+ps:纸质版笔记有空再整理
